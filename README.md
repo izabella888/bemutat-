@@ -1,0 +1,2 @@
+# bemutat-
+Első önálló munkáim.
